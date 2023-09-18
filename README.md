@@ -1,2 +1,2 @@
-# git-hub-page
+# Birusha Ndegeya | Profile
 My life and description
